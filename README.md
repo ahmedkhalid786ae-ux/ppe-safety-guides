@@ -13,7 +13,7 @@ https://sams-solutions.com/
 
 Explore premium industrial Safety Jackets designed for workplace protection, visibility, durability, and worker safety:
 
-https://sams-solutions.com/collections/body-protection-safety-jackets
+[Safety Jacket](https://sams-solutions.com/collections/body-protection-safety-jackets)
 
 ## PPE Products Offered
 
